@@ -22,3 +22,16 @@
 
 
 
+## Скриншоты
+![image](https://github.com/user-attachments/assets/0a75e536-954a-4f8c-b440-fc3972dde9b3)
+![image](https://github.com/user-attachments/assets/498c488c-5487-4f20-ba1b-5d4edc3be7f4)
+![image](https://github.com/user-attachments/assets/1f197695-13d4-4f04-8305-bc536cb0df27)
+![image](https://github.com/user-attachments/assets/fccaab2c-3148-404a-9f2f-5d2de5703b36)
+
+
+
+
+
+
+
+
